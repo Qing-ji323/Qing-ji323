@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning 
 - 💞️ I have a pretty girl I like
 - 📫 How to reach me 3810414822@qq.com
-- 😄 Pronouns: happy
+- 😄 Pronouns: happy curious
 - ⚡ Fun fact: a fat boy
 
 <!---
